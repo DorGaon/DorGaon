@@ -13,7 +13,7 @@ BI Analyst - Snir-BI, (2023 - 2024)
 
 FP&A - Cellcom, (2022 - 2023)
 
-Algorithm Trading systems Operator - ALGOZ, (2021 - 2022)
+Algorithm Trading systems Operator - ALGOZ, (2020 - 2022)
 
  - Tech Toolbox 🛠️
 
